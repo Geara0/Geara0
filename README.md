@@ -1,5 +1,5 @@
 - Currently studying in university
-- telegram - @geara0\n
+- telegram - @geara0
 - email - adrezz.26.5@gmail.com
 
 <!---
